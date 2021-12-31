@@ -1,3 +1,6 @@
+![Call Me Jo](https://user-images.githubusercontent.com/26187383/147795311-a86a02ee-bf8b-4082-a513-6ecad3ed1967.png)
+
+
 ### Hi there 👋
 
 <!--
